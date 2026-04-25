@@ -94,7 +94,7 @@ By finding a trustworthy broker, picking a cautious trader to copy, and managing
 Have you ever tried copy trading or managed accounts before? Drop a comment below or share this guide with a friend who’s looking to start their own investing journey!
 <h2>Related HashTags</h2>
 #PassiveIncome #ForexTrading #ManagedForex #Investing #WealthManagement #FinancialFreedom #PassiveIncomeStreams #ForexStrategy #InvestmentTips #ManagedAccounts #CurrencyTrading #SmartInvesting #PortfolioGrowth #IncomeGeneration #ForexMarket
-<h1><strong>Contact Us</strong></h1>
+<h1><strong>Contact Us for Fund Management</strong></h1>
 <ul>
  	<li>
 <h3><strong>Telegram <span style="color: #ff0000;"><a style="color: #ff0000;" href="https://t.me/Forex_Fund_Manage">@Forex_Fund_Manage</a></span></strong></h3>
